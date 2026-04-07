@@ -27,7 +27,7 @@ Show Image
 Show Image
 Show Image
 Show Image
-Show Image
+Show Image    
 
 💼 Experience
 RoleCompanyDuration🎨 Graphics Designer & SMM ExpertCode with OAD (Remote)May 2025 – Present🎨 Junior Graphics Designer (Internship)Code with OAD, NawabshahJul 2024 – Nov 2024📚 TeacherYaqeen Education FoundationJan 2023 – Jan 2024
